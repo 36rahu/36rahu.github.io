@@ -1,1 +1,0 @@
-# 36rahu.github.io
